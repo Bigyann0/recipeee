@@ -1,1 +1,0 @@
-# This is one small step for a man. One giant leap for his family.
